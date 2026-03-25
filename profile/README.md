@@ -1,4 +1,4 @@
-## 私たちです 🎉
+## こんにちは 🎉
 
 ![AMBL](/images/AMBL_taglinelogo_white.jpg)
 
